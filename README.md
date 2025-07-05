@@ -1,6 +1,6 @@
 ##Hi, I am Rue! 🦉
 
-🎇 Self learning codder from 2 yrs<br>
+🎇 Self learning coder from 2 yrs<br>
 🎀 23 Yrs old<br>
 🎠 I Draw and design digital and traditional Art<br>
 🌊 Created small projects and still working on the rest.<br>
